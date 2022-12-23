@@ -1,2 +1,0 @@
-# Arrow-Army
-among us
